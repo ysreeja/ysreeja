@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Sreeja
-- 🌱 I’m currently looking for full time Data Analyst roles
+- 🌱 I’m currently looking for full time Data Analyst / Business Analyst roles
 - 📫 You can reach out on my email: yalavarthi.ss@gmail.com
 - 😄 Pronouns: She/Her
 
